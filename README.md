@@ -1,0 +1,2 @@
+# premium-book-edge-001-book-edge-marbling-process-pla
+Professional heritage-paper-marbling Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Book Edge Marbling Process — fully configured and ready to use - Pre-built databases
